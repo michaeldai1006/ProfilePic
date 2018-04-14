@@ -1,2 +1,2 @@
 # ProfilePic
-Profile pic created me by using Sketch
+Profile pic created by me using Sketch
